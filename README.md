@@ -1,2 +1,5 @@
-# sprite-fantasia-cheats-codes-free-prism-gems-hacks
-Sprite Fantasia Cheats and Codes for unlimited prism gems guide and hacks
+# Sprite Fantasia Cheats and Codes for unlimited prism gems guide and hacks
+
+Sprite Fantasia Cheats and Codes for unlimited prism gems guide and hacks - The awakening state of Mori Jin, the main protagonist of the God of high school series, is worthy of being one of the top characters in Sprite Fantasia. Although he has many pseudonyms, in the world of the Sprite Fantasia mod, the heavenly warlord seems to accord with his attributes and skills. He is a good character in most game modes, but he does well in the arena because of his counterattack, reduced defense and self-healing. Stick technique is a pretty good basic attack, with 120% damage and clear counterattack. His second skill is a powerful piercing attack on the enemies in the back row, causing 175% damage and a 90% chance to reduce 90% defense in 2 rounds. Repeat attack is an AOE attack that deals 120% of the attack damage to the enemy with the highest attack and an additional 170% of the attack damage. This ability can also increase the health of paradise volrod by 15% of its maximum health.
+
+<a href="https://watermod.icu/sprite-fantasia/">visit here</a>
